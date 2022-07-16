@@ -2,4 +2,4 @@
 
 - Doctor Doom
 - Red Skull
-- Dr. Malo
+- Capitán América
